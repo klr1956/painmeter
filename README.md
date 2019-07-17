@@ -1,2 +1,2 @@
 # painmeter
-What a pain!
+What a pain in the ass!
